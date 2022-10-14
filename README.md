@@ -1,1 +1,1 @@
-# ImageSolutions.github.io
+# ImageSolutions.io
